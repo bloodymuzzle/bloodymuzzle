@@ -18,7 +18,7 @@
 
 ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶
 
-![Image](https://www.simpleimageresizer.com/_uploads/photos/cd65afda/68747470733a2f2f692e706f7374696d672e63632f6a6a36535a3956672f476c6c6d742d553061772d41415738752d552d72656d6f766562672d707265766965772e706e67_28.png)
+![Image](https://i.postimg.cc/SKX6HMFt/Gllmt-U0aw-AAW8u-U-removebg-preview.png)
 
 ᴘɪᴄᴋʟᴇꜱ ㅤㅤ𝓃ㅤㅤˢᵉᵗʰㅤㅤㅤyume
 
