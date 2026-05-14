@@ -16,5 +16,3 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xzbapuwfx2aeudyk64eo5httaa&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=4b6549&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
  $\color{rgb(69, 75, 27)}{\textsf{𝔡𝔫𝔦 𝖒𝖆𝖌𝖓𝖚𝖘 / 𝖕𝖎𝖈𝖐𝖑𝖊𝖘 ʏᴜᴍᴇꜱ }}$
- 
-$\color{rgb(60, 100, 25)}{\textsf{𝔦 𝔩𝔬𝔳𝔢 𝖒𝖞 𝔭𝔦𝔠𝔨𝔩𝔢𝔰, ᵐʸ ᵈᵃʳˡⁱⁿᵍ}}$
