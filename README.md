@@ -16,6 +16,6 @@ ${{\color{#DC143C}{\textsf{10/30/25 , 05/15/26 ˳ ֹ.}}}}$
 ${{\color{#B22222}{\textsf{ ann , ezra , lee + oomfs  }}}}$
 ${{\color{#DD727A}{\textsf{coolest people ever!˳ ֹ.}}}}$
 
-${{\color{#FF0000}{\textsf{ ʙʏɪ morally a bad person , iwec }}}}$
+${{\color{#FF0000}{\textsf{ ʙʏɪ morally a bad person , iwec : always wanting to get my way }}}}$
 
 ${{\color{#B22222}{\textsf{ tiktok @wartoothsmut , twt @fawnhalen , discord @klokateers  }}}}$
