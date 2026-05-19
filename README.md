@@ -20,4 +20,4 @@ ${{\color{#FF0000}{\textsf{ ʙʏɪ morally a bad person , iwec : always wanting 
 
 ${{\color{#B22222}{\textsf{ tiktok @wartoothsmut , twt @fawnhalen , discord @klokateers  }}}}$
 
-ok whatever 🙄🙄🙄peees myself a little and blocks, god forbid someone be mentally ill because of someone named ryan who twists my words and much more🤣🤣🤣hes acting as if he wasnt enjoying that and fetishizing that too ;-;;;; and if apparently you dont care, why are you looking into stuff ive sais with ryan??why does it matter so much when it xomes to me when im literally trying to get better 🤣🤣🤣 rhis fandom jates mentally ill people foidfoidfoidfoid
+LMAOOOO
