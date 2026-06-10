@@ -3,7 +3,7 @@
 <div align="center">
 
 
-⠀ ![](https://komarev.com/ghpvc/?username=rehabklok&abbreviated=true&label=fans&color=8B0000)
+⠀ ![](https://komarev.com/ghpvc/?username=rehabklok&abbreviated=true&label=bars&color=8B0000)
 
 
 
