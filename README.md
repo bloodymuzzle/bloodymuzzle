@@ -15,6 +15,7 @@ i'll often be seen with friends, dont be scared to say hi ok?
 
 my intrests include fight club, 𝐣𝐚𝐜𝐤𝐚𝐬𝐬, metalocalypse, van halen/80's media in general, the boys (getting into it, thx ann xx), yeah thats most of it okay, dont be scared to bmf
 
+also pickles yumes dniii ;_;
 
 
 </div>
