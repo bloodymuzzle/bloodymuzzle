@@ -13,9 +13,9 @@ hi im tyler or wutever..  they them cuz im woke MASC LEANING!!!
 
 i'll often be seen with friends, dont be scared to say hi ok?
 
-my intrests include fight club, 𝐣𝐚𝐜𝐤𝐚𝐬𝐬, metalocalypse, van halen/80's media in general, the boys (getting into it, thx ann xx), yeah thats most of it okay, dont be scared to bmf
+my intrests include fight club, 𝐣𝐚𝐜𝐤𝐚𝐬𝐬, uncle outrage, metalocalypse, van halen/80's media in general, the boys (getting into it, thx ann xx), yeah thats most of it okay, dont be scared to bmf
 
-also pickles yumes dniii ;_;
+noticed by brendon small 3 times oh my god @!!! noticed by nils+zane from uncle outrage x4 times
 
 
 </div>
