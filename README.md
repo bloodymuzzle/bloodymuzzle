@@ -18,7 +18,7 @@
 
 
 
-![](https://64.media.tumblr.com/0cd66786af0d9e6c6ac6a624730fd340/tumblr_pcuyogbiN91xsgzvdo10_500.gifv)
+![]()
 
 
 
